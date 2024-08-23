@@ -14,7 +14,6 @@ Você pode entrar em contato comigo 📬
 
 davidalmeidax1x2@gmail.com
 
-![](https://medial.tenor.com/pt-BR/view/dunk-dunked-dunks-march-nba-gif-174691535520469350)
-
+![image](https://github.com/user-attachments/assets/9097ee42-d3e1-4ec3-9953-455e85163d06)
 
 
